@@ -58,10 +58,6 @@ if you are in any of these fandoms, it's heavily encouaged to interact!
  Thank you for visiting Our GitHub <3
 
 <p align="center">
-page is a WIP!
-</p>
-
-<p align="center">
   somethin prolly a divider
 </p>
 
