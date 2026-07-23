@@ -28,7 +28,7 @@ don't act strange, it makes Us doubt to the person We are talking to and can eas
 I'm iffy on drama. I'm open to conversation, but usually We really don't care.
 We have REALLY bad anxiety and bad memory, I DO apologize for that. I'm NOT comfortable with being friends after barely 5 minutes of pointless chatter.
 PLEASE do not interact with me if you are:
-- Racist, Homophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, AI "artists", Drama Queens, MAGA, under 14 and above 17.
+- basic DNI, pro-AI, Dandy's World, Forsaken, or Pressure fans/supporters, under 14 and above 17.
 
 <p align="center">
 divider
