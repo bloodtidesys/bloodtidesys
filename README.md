@@ -13,8 +13,9 @@ emoji/gif
   </a>
 </p>
 
-<p align="center">
-counters
+<div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=bloodtidesys-CO&label=Water_drops&color=ffd14d)  <img alt="GitHub followers" src="https://img.shields.io/github/followers/bloodtidesys?style=flat&label=Water-Breathers&color=#55b77c"> 
 
 <p align="center">
 blinkies
