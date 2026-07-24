@@ -14,15 +14,18 @@ emoji/gif
 </p>
 
 <p align="center">
+counters
+
+<p align="center">
+blinkies
+
+<p align="center">
  Hi! Call us Syn or KODEX, and are currently BODILY 15 years old. Our birthday is April 15th.
 We been in orchestra for 5 years now, and hope to become an actor in the future. We tend to capitalize our plural pronouns (We, Us, etc).
 We're open for conversation, but just shoot a whisper first since we're usually offtab.
 
-
-
 <p align="center">
 banner 2
-
 
 <p align="center">
 Please respect Our comfort, some simple things can make Us nervous or uneasy,,
