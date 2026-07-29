@@ -26,7 +26,7 @@ blinkies
 <p align="center">
  Hi! Call us Syn or KODEX, and are currently BODILY 15 years old. Our birthday is April 15th.
 We been in orchestra for 5 years now, and hope to become an actor in the future. We tend to capitalize our plural pronouns (We, Us, etc).
-We're open for conversation, but just shoot a whisper first since We're usually offtab.
+We're open for conversation, but just shoot a whisper first since We're usually offtab. I YUMESHIP WITH MARK HOFFMAN, GIYUU TOMIOKA, AND CORBEAU! NONSHARING! DOUBLES DNI THANK YOU
 
 </details>
 
