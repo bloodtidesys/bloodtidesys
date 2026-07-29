@@ -24,9 +24,9 @@ blinkies
   <summary>──⠀Personal info　  </summary>
  
 <p align="center">
- Hi! Call us Syn or KODEX, and are currently BODILY 15 years old. Our birthday is April 15th.
+ Hi! Call us Syn or KODEX, and are currently BODILY 15 years old. Our birthday is April 15th. The host of the sys is Leo :3
 We been in orchestra for 5 years now, and hope to become an actor in the future. We tend to capitalize our plural pronouns (We, Us, etc).
-We're open for conversation, but just shoot a whisper first since We're usually offtab. I YUMESHIP WITH MARK HOFFMAN, GIYUU TOMIOKA, AND CORBEAU! NONSHARING! DOUBLES DNI THANK YOU
+We're open for conversation, but just shoot a whisper first since We're usually offtab. I YUMESHIP WITH MARK HOFFMAN, GIYUU TOMIOKA, SHANE, AND CORBEAU! NONSHARING! DOUBLES DNI THANK YOU
 
 </details>
 
@@ -70,8 +70,6 @@ if you are in any of these fandoms, it's heavily encouaged to interact!
 - more soon maybe
 </p>
 
-<p align="center">
- Thank you for visiting Our GitHub <3
 
 <p align="center">
   somethin prolly a divider
@@ -86,4 +84,11 @@ blinkies
 
 <p align="center">
 MY CLOSE FRIENDS! @star, @shepherd
+
+<p align="center">
+We're quite active in the regiment community. You can find Us in TSA, SPI, and SANGO. We've been in SWS (yikes), CYNrs, SCR, LC, SBR, and a couple of others as well. Fun fact: TSA is the first regiment I've been a CO in! I'm an NCO in SPI, and was in SCR ^_^. You may know Us as Streber if you were active in 2023ish, but now We usually use Mark lol.
+
+<p align="center">
+ Thank you for visiting Our GitHub <3
+ 
   
