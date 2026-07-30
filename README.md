@@ -1,5 +1,6 @@
 <p align="center">
  PAGE IS NOT DONE YET!!!! UNDER CONSTRUCTION
+ also i sometimes spam follow i like stalking githubs
  
 <p align="center">
  banner
