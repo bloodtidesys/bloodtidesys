@@ -84,8 +84,7 @@ blinkies
 </p>
 
 <p align="center">
-MY CLOSE FRIENDS! @star, @shepherd
-
+MY CLOSE FRIENDS! @WWE Fans GC
 <p align="center">
 We're quite active in the regiment community. You can find Us in TSA, SPI, and SANGO. We've been in SWS (yikes), CYNrs, SCR, LC, SBR, and a couple of others as well. Fun fact: TSA is the first regiment I've been a CO in! I'm an NCO in SPI, and was in SCR ^_^. You may know Us as Streber if you were active in 2023ish, but now We usually use Mark lol.
 
