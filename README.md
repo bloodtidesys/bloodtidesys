@@ -1,6 +1,7 @@
 <p align="center">
  PAGE IS NOT DONE YET!!!! UNDER CONSTRUCTION
  also i sometimes spam follow i like stalking githubs
+ <p align="center">
   i need to vaguepost so fucking badly dude
  
 <p align="center">
