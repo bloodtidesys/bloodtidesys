@@ -19,7 +19,7 @@ emoji/gif
 
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=bloodtidesys-CO&label=Water_drops&color=ffd14d)  <img alt="GitHub followers" src="https://img.shields.io/github/followers/bloodtidesys?style=flat&label=Water-Breathers&color=#55b77c"> 
+![](https://komarev.com/ghpvc/?username=bloodtidesys-CO&label=Water_drops&color=ffd14d) <img width="25" alt="d060c3c169f0af7a3225172a6935a0e047206bdb_1" src="https://github.com/user-attachments/assets/6e638a32-923a-43c0-bf50-50749fe01ca7" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/bloodtidesys?style=flat&label=Water-Breathers&color=#55b77c"> 
 
 <p align="center">
 blinkies
@@ -84,8 +84,11 @@ emoji/gif
 blinkies
 </p>
 
-<p align="center">
-MY CLOSE FRIENDS! @WWE Fans GC @shepherd
+<div align="center">
+ 
+MY CLOSE FRIENDS! @WWE Fans GC [@Shepherd](https://github.com/PinkiePieExplosion)
+</div>
+
 <p align="center">
 We're quite active in the regiment community. You can find Us in TSA, SPI, and SANGO. We've been in SWS (yikes), CYNrs, SCR, LC, SBR, and a couple of others as well. Fun fact: TSA is the first regiment I've been a CO in! I'm an NCO in SPI, and was in SCR ^_^. You may know Us as Streber if you were active in 2023ish, but now We usually use Mark lol.
 
