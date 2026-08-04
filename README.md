@@ -29,7 +29,7 @@ blinkies
  
 <p align="center">
  Hi! Call us Syn or KODEX, and are currently BODILY 15 years old. Our birthday is April 15th. The host of the sys is Leo :3
-We been in orchestra for 5 years now, and hope to become an actor in the future. We tend to capitalize our plural pronouns (We, Us, etc).
+We been in orchestra for 5 years now, and hope to become an actor in the future.
 We're open for conversation, but just shoot a whisper first since We're usually offtab. I YUMESHIP WITH MARK HOFFMAN, GIYUU TOMIOKA, SHANE, AND CORBEAU! NONSHARING! DOUBLES DNI THANK YOU
 
 </details>
@@ -42,12 +42,10 @@ banner 2
 
 <p align="center">
 
-Please respect Our comfort, some simple things can make Us nervous or uneasy,,
-don't act strange, it makes Us doubt to the person We are talking to and can easily get you blocked or ignored.
-I'm iffy on drama. I'm open to conversation, but usually We really don't care.
 We have REALLY bad anxiety and bad memory, I DO apologize for that. I'm NOT comfortable with being friends after barely 5 minutes of pointless chatter.
 PLEASE do not interact with me if you are: basic DNI, pro-AI, Dandy's World, Forsaken, or Pressure fans/supporters, under 14 and above 17.
 We really do like to talk (really just listen). We can easily get excited when interests are mentioned, especially near friends. If it ever gets too much, don't hesitate to tell me LOL.
+Our anxiey can be REALLY bad... bare with us lmao
 
 </details>
 
@@ -87,11 +85,11 @@ blinkies
 </p>
 
 <p align="center">
-MY CLOSE FRIENDS! @WWE Fans GC
+MY CLOSE FRIENDS! @WWE Fans GC @shepherd
 <p align="center">
 We're quite active in the regiment community. You can find Us in TSA, SPI, and SANGO. We've been in SWS (yikes), CYNrs, SCR, LC, SBR, and a couple of others as well. Fun fact: TSA is the first regiment I've been a CO in! I'm an NCO in SPI, and was in SCR ^_^. You may know Us as Streber if you were active in 2023ish, but now We usually use Mark lol.
 
 <p align="center">
- Thank you for visiting Our GitHub <3
+ Thank you for visiting our GitHub <3
  
   
