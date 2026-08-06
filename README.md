@@ -54,7 +54,7 @@ banner 2
 <p align="center">
 
 We have REALLY bad anxiety and bad memory, I DO apologize for that. I'm NOT comfortable with being friends after barely 5 minutes of pointless chatter.
-PLEASE do not interact with me if you are: basic DNI, pro-AI, Dandy's World, Forsaken, or Pressure fans/supporters, under 14 and above 17.
+PLEASE do not interact with me if you are: basic DNI, pro-AI, Dandy's World, Forsaken, or Pressure fans/supporters, under 14 and above 17, pro endo, pro radqueers, etc.
 We really do like to talk (really just listen). We can easily get excited when interests are mentioned, especially near friends. If it ever gets too much, don't hesitate to tell me LOL.
 Our anxiey can be REALLY bad... bare with us lmao
 
