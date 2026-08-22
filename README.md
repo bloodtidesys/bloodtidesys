@@ -97,7 +97,7 @@ blinkies
 
 <div align="center">
  
-MY CLOSE FRIENDS! @WWE Fans GC [@Shepherd](https://github.com/PinkiePieExplosion)
+MY CLOSE FRIENDS! @Tawny [@Shepherd](https://github.com/PinkiePieExplosion)
 </div>
 
 <p align="center">
