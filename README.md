@@ -3,7 +3,7 @@
  also i sometimes spam follow i like stalking githubs
  
  <p align="center">
-  i hate to vaguepost, but if Star is reading this then please DNI. I’m currently working on a doc on you ❤️. every interaction is reported and saved.
+  i hate to vaguepost, but if Star is reading this then please DNI. I’m currently working on a doc on you ❤️. every interaction is reported and saved. xylo/danhausen dni youre weird as fuck
  
 <p align="center">
  banner
