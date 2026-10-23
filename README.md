@@ -3,7 +3,7 @@
  also i sometimes spam follow i like stalking githubs
  
  <p align="center">
-  i hate to vaguepost, but if Star is reading this then please DNI. I’m currently working on a doc on you ❤️. every interaction is reported and saved. xylo/danhausen dni youre weird as fuck
+  Starlight/Clownette please DNI, document is in the works. xylo/danhausen dni youre weird as fuck
  
 <p align="center">
  banner
@@ -39,9 +39,8 @@ emoji/gif
   <summary>──⠀Personal info　  </summary>
  
 <p align="center">
- Hi! Call us Syn or KODEX, and are currently BODILY 15 years old. Our birthday is April 15th. The host of the sys is Leo :3
-We been in orchestra for 5 years now, and hope to become an actor in the future.
-We're open for conversation, but just shoot a whisper first since We're usually offtab. I YUMESHIP WITH MARK HOFFMAN, GIYUU TOMIOKA, SHANE, AND CORBEAU! NONSHARING! DOUBLES DNI THANK YOU
+ Hi! You can call me Leo, K0DEX, or any other name you may know me as. I am a MINOR, my birthday is April 15th! I am a system. I really enjoy orchestra and have been in it for 5 years now, and hope to become an actor or study law/criminal justice in the future.
+We're open for conversation, but just shoot a whisper first since we're usually offtab. I YUMESHIP WITH MARK HOFFMAN, GIYUU TOMIOKA, ROY MUSTANG, SHANE, AND CORBEAU! NONSHARING/VOIDSHARING! DOUBLES DNI THANK YOU
 
 </details>
 
@@ -53,8 +52,8 @@ banner 2
 
 <p align="center">
 
-We have REALLY bad anxiety and bad memory, I DO apologize for that. I'm NOT comfortable with being friends after barely 5 minutes of pointless chatter.
-PLEASE do not interact with me if you are: basic DNI, pro-AI, Dandy's World, Forsaken, or Pressure fans/supporters, under 14 and above 17, pro endo, pro radqueers, etc.
+We have REALLY bad anxiety and bad memory, I DO apologize for that..
+PLEASE do not interact with me if you are: basic DNI, pro-AI, Dandy's World, Forsaken, or Pressure fans/supporters, under 14 and above 17 (unless we’ve been friends for a while), pro endo, pro radqueers, etc.
 We really do like to talk (really just listen). We can easily get excited when interests are mentioned, especially near friends. If it ever gets too much, don't hesitate to tell me LOL.
 Our anxiey can be REALLY bad... bare with us lmao
 
@@ -80,6 +79,7 @@ if you are in any of these fandoms, it's heavily encouaged to interact!
 - Demon Slayer
 - Daemons of the Shadow Realm
 - Ryan Gosling... drools...
+- Fullmetal Alchemist
 - more soon maybe
 </p>
 
@@ -101,9 +101,9 @@ MY CLOSE FRIENDS! @Tawny [@Shepherd](https://github.com/PinkiePieExplosion)
 </div>
 
 <p align="center">
-We're quite active in the regiment community. You can find Us in TSA, SPI, and SANGO. We've been in SWS (yikes), CYNrs, SCR, LC, SBR, and a couple of others as well. Fun fact: TSA is the first regiment I've been a CO in! I'm an NCO in SPI, and was in SCR ^_^. You may know Us as Streber if you were active in 2023ish, but now We usually use Mark lol.
+We're quite active in the regiment community. You can find Us in 24th, GCR, SPI, and SANGO. We've been in SWS (yikes), CYNrs, SCR, LC, SBR, and a couple of others as well. Fun fact: TSA is the first regiment I've been a CO in! I'm an NCO in SPI, and was in SCR ^_^. You may know us as Streber if you were active in 2023ish, but now we usually use Roy or Giyuu lol.
 
 <p align="center">
- Thank you for visiting our GitHub <3
+ Thank you for visiting our GitHub <3 Feel free to sign my ata, whisper, or sit with me! :3
  
   
