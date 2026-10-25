@@ -39,7 +39,7 @@ emoji/gif
   <summary>──⠀Personal info　  </summary>
  
 <p align="center">
- Hi! You can call me Leo, K0DEX, or any other name you may know me as. I am a MINOR, my birthday is April 15th! I am a system. I really enjoy orchestra and have been in it for 5 years now, and hope to become an actor or study law/criminal justice in the future.
+ Hi! You can call me Leo, K0DEX, or any other name you may know me as. I am a MINOR, my birthday is April 15th! I am 15 :,3 pls no weirdness. I really enjoy orchestra and have been in it for 5 years now, and hope to become an actor or study law/criminal justice in the future. I am also a system..
 We're open for conversation, but just shoot a whisper first since we're usually offtab. I YUMESHIP WITH MARK HOFFMAN, GIYUU TOMIOKA, ROY MUSTANG, SHANE, AND CORBEAU! NONSHARING/VOIDSHARING! DOUBLES DNI THANK YOU
 
 </details>
